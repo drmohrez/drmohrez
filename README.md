@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects related to artificial intelligence and healthcare industry.
 - 📫 You can reach me via email: mohrezhyd@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: im a  basketball player and origamist
+- ⚡ Fun fact: Im a  basketball player and origamist
 
 
 <!---
